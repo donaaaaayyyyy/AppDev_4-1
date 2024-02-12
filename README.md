@@ -1,4 +1,4 @@
-# Get to know me more? by knowing our favorite series!
+# Get to know us more? by knowing our favorite series!
 ### App Devt. Activity submitted to Mr. Francis Ian Africa 
 ### Submitted by: Donamarie Roque and Richmond Santos
 
